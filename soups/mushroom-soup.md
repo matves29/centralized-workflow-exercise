@@ -4,7 +4,8 @@
 ## Ingredients
 
 - **1 lb** (450g) mixed mushrooms (e.g., button, cremini, shiitake), cleaned and sliced
-- **200 tablespoons** olive oil or unsalted butter
+- **2** garlic cloves, minced
+- **2 tablespoons** olive oil or unsalted butter
 - **0.11** klingon onion, diced
 
 
